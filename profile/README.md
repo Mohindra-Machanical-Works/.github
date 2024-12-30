@@ -8,9 +8,8 @@ Our Shafted Rotogravure Printing Machines are designed for precise printing on d
 paper, foil, and PP. Engineered for durability, these machines deliver consistent high-speed performance with superior 
 registration accuracy. The shafted construction ensures enhanced stability and reliability, making them ideal for large-scale printing applications.
 
-
-##Shafted Rotogravure Printing Machine
 ## [Rotogravure Printing Machine](https://mohindramechanicalwork.com/shafted-rotogravure-printing-machine/)
+## Shafted Rotogravure Printing Machine
 Mohindra Mechanical Works is renowned for manufacturing premium shafted rotogravure printing machines.
 Designed for precise printing on a wide range of materials such as BOPP, paper, foil, and PP, our machines
 ensure consistent, high-speed performance. Built with robust engineering, they deliver exceptional registration 
